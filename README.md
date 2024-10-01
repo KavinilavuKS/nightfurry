@@ -1,4 +1,4 @@
-# nightfurry
-Creating a new website for learning
+# From Nightfury
+Hi Manny how are you 
 
-Hi everyone great to see you all
+i'm creating this page for you :D
